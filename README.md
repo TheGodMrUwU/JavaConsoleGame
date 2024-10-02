@@ -12,3 +12,5 @@ faltan demasiadas cosas por pulir la verdad hacerlo mejor a estas alturas seria 
 ## notas importantes
 
 aun no hay pero imaginemos que estoy a nada de ponerlas....
+
+YA TENGO LA NOTA IMPORTANTE. POR FAVOR DENLE ESTRELLA
